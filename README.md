@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @brazuke
 - 👀 I’m interested in many things...
-- 🌱 I’m currently learning philosophy and law.
+- 🌱 I’m currently studying philosophy and law.
 - 📫 How to reach me: Brazuke#1000 (Discord)
 
 <!---
